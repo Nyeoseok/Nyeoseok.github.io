@@ -1,1 +1,0 @@
-# Nyeoseok.github.io
